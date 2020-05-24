@@ -1,1 +1,0 @@
-# GITtotorial-sm-school
